@@ -1,2 +1,2 @@
 # Huzaifa
-Islamic Knowledge
+Islamic Knowledge is a great Knowledge
